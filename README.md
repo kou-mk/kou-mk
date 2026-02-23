@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kou-mk
-- 👀 I’m interested in ...playing Apex Legends
+- 👀 I’m interested in ...playing ski
 - 🌱 I’m currently learning ... Python
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
